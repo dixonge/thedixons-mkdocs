@@ -5,7 +5,8 @@ Title: Dixon Origins
 
 The story of the Dixon siblings and where they came from rests on a very shaky foundation. Most of the story relies on a single quote from Albert Cook Myers, in his seminal work "Immigration of the Irish Quakers into Pennsylvania 1682-1750" which was published in 1902. In it, Mr. Myers refers to a wedding listed in the Lurgan Monthly Meeting in Co. Armagh, Ireland. A William Dixson married Isabelle Rea. In attendance were both a Henry and a Rose Dixson. Myers then states the following:
 
-This, no doubt, is the same family that came over to New Castle Co., prior to 1690. Henry Dixson, it is said, kept an inn at New Castle
+> This, no doubt, is the same family that came over to New Castle Co., prior to 1690. Henry Dixson, it is said, kept an inn at New Castle
+
 This statement is not supported by any source at all. "no doubt" and "it is said" is extremely shaky proof, especially since Myers was publishing this information over two-hundred years after the fact!
 
 And yet, like many things in the genealogy world, it was generally accepted. Since the 1990's, when genealogy began finding its way online, this story has been copied and pasted until it seems like plain fact.
